@@ -1,1 +1,0 @@
-# mompal-mokumoku
